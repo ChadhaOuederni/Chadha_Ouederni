@@ -73,7 +73,7 @@ mon cv personnel
 
 ## 🤝 Engagement associatif
 
-- Membre et trésorière du club ARSII ESPRIT
+- Membre et trésorière du club ARSII ISIMM
 
 ---
 
